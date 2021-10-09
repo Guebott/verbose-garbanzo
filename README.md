@@ -1,2 +1,3 @@
-# verbose-garbanzo
+htps.Garena-Freefire.com
+
 Diamond Gratis
